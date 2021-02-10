@@ -1,2 +1,0 @@
-# Rizky Musthofa
-Assalamu'alaikum.
